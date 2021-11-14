@@ -6,5 +6,5 @@
 
 - 🍺 I like sour beer and instant noodles🍜
 
-- 📲 You can contact me: [Telegram](https://t.me/gandranna) or
-                        [mail](mailto:praskovia.gandrabura@ya.ru)
+- 📲 You can contact me: on [Telegram](https://t.me/gandranna) or
+                        via [email](mailto:praskovia.gandrabura@ya.ru)
