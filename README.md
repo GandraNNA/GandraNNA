@@ -8,3 +8,5 @@
 
 - 📲 You can contact me: on [Telegram](https://t.me/gandranna) or
                         via [email](mailto:praskovia.gandrabura@ya.ru)
+
+![](https://komarev.com/ghpvc/?username=GandraNNA)
